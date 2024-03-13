@@ -12,7 +12,12 @@ Some things about me! I am considered to be:
 - ~~iconic~~
 - ~~prodigal~~
 - ~~one of the greatest minds of the century~~
-- very humble
+- rather humble
+- super lowkey
+
+I love doing all sorts of hobbies: on my free time I skate, draw, play ttrpgs[^1] and videogames, and work out.
+
+[^1]: table top role playing games
 
 I also absolutely love climbing 🧗, particularly bouldering. If you want to get some insight into why I think bouldering is so sick, I highly recommend checking out 
 [Wedge climbing](https://www.youtube.com/@WEDGECLIMBING), and in particular their [mini doc on Aidan Roberts.](https://youtu.be/zilINHowP2g?si=NTWvHNw1PhDKJcmJ)
