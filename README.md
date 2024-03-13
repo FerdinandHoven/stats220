@@ -14,5 +14,6 @@ Some things about me! I am considered to be:
 - ~~one of the greatest minds of the century~~
 - very humble
 
-I also absolutely love climbing, particularly bouldering. If you want to get some insight into why I think bouldering is so sick, I highly recommend checking out 
+I also absolutely love climbing 🧗, particularly bouldering. If you want to get some insight into why I think bouldering is so sick, I highly recommend checking out 
 [Wedge climbing](https://www.youtube.com/@WEDGECLIMBING), and in particular their [mini doc on Aidan Roberts.](https://youtu.be/zilINHowP2g?si=NTWvHNw1PhDKJcmJ)
+![aidan roberts climbing alphane](https://cdn.climbing.com/wp-content/uploads/2022/11/0H1A8980HIGH-RES-scaled.jpg)
